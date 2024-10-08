@@ -6,7 +6,7 @@
 
 💞️ Je cherche à collaborer sur des projets innovants qui repoussent les limites de la technologie, en particulier dans les domaines de la fintech et de l'analyse prédictive.
 
-📫 Comment me contacter : N'hésitez pas à me joindre par email à derrainoussa@24.com ou à me connecter sur LinkedIn à linkedin.com/in/inoussa-derra-7a176a1ba/.
+📫 Comment me contacter : N'hésitez pas à me joindre par email à derrainoussa@24.com ou à me connecter sur LinkedIn à linkedin.com/in/inoussa-derra-7a176a1ba
 
 😄 Pronoms : Il/Lui
 
